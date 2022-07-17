@@ -1,1 +1,1 @@
-Authors: sisusam, and Kai
+Authors: sisusam(Sam), and Kai
