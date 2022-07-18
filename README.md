@@ -1,1 +1,1 @@
-Authors: sisusam(Sam), and kirakai-dev(Kai)
+Authors: sisusam(Sam), and kirakai-dev(Kira)
